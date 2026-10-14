@@ -1,0 +1,1 @@
+# planshetli-loyiha-ishi
